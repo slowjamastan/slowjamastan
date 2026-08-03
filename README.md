@@ -1,5 +1,5 @@
 <p align="center">
-<img width="342" height="296" alt="SLOWJ. AMASYAN" src="https://files.catbox.moe/8xl4ru.gif" />
+<img width="463" height="463" alt="SLOWJ. AMASYAN" src="https://files.catbox.moe/8xl4ru.gif" />
 <p align="center">
 - hellooo my actual name is rodrick but I prefer to be called slowjamastan because i want to😁😁
 <p align="center">
