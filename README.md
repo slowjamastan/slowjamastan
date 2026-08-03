@@ -3,7 +3,7 @@
 <p align="center">
 - hellooo my actual name is rodrick but I prefer to be called slowjamastan because i want to😁😁
 <p align="center">
-- this is just a short introduction because my profile looked so empty lmao😂😂 also angelito taught me how to do this BIG THANKS TO HIM MAN I LOVE HIM SO MUCHHHH SEND HIM GIMMICKS or sign his ata or something i dont know what those mean. his user is in my bio if you wanna do that whatever
+- this is just a short introduction because my profile looked so empty😂😂 also angelito taught me how to do this BIG THANKS TO HIM MAN I LOVE HIM SO MUCHHHH SEND HIM GIMMICKS or sign his ata or something i dont know what those mean. his user is in my bio if you wanna do that whatever
 <p align="center">
 - my interests are Hetalia and Persona 5, especially the micronations in Hetalia I tend to focus on that a lot
 <p align="center">
