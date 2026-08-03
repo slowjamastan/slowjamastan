@@ -11,4 +11,8 @@
 <p align="center">
 - i’m not very social and I won’t talk unless spoken to, you can be friends with me if you want to but I don’t really play ponytown that often
 <p align="center">
-ok that’s it bye
+ok that’s it bye go follow me on tiktok that’s the only social i have other than github
+
+<p align="center">
+  <a href=https://www.tiktok.com/@slowjamastans">me tiktok</a>
+</p>
