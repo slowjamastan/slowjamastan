@@ -1,18 +1,18 @@
-<p align="center">
-<img width="463" height="463" alt="SLOWJ. AMASYAN" src="https://files.catbox.moe/8xl4ru.gif" />
-<p align="center">
-- hellooo my actual name is rodrick but I prefer to be called slowjamastan because i want to😁😁
-<p align="center">
-- this is just a short introduction because my profile looked so empty😂😂 also angelito taught me how to do this BIG THANKS TO HIM MAN I LOVE HIM SO MUCHHHH SEND HIM GIMMICKS or sign his ata or something i dont know what those mean. his user is in my bio if you wanna do that whatever
-<p align="center">
-- my interests are Hetalia and Persona 5, especially the micronations in Hetalia I tend to focus on that a lot
-<p align="center">
-- I’M A MINOR don’t be weird to me unless I know you
-<p align="center">
-- i’m not very social and I won’t talk unless spoken to, you can be friends with me if you want to but I don’t really play ponytown that often
-<p align="center">
-ok that’s it bye go follow me on tiktok that’s the only social i have other than github
+<div align="center">
+<h2>short intro cuz i dont have time for anything :( i dont wanna bother making this look good LMAO</h2>
+<img width="463" alt="me mochi" src="https://files.catbox.moe/8xl4ru.gif" />
+
+<ul>
+  <li>My name is slowjamastan, i'm not a selfshipper of him or anything I just really like slowjamastan I am slowjamastan</li>
+  <li>main interests are Hetalia and Persona 5🥵🥵🥵 but I do not care about the main characters in Hetalia whatsoever I only focus on the micronations and rarely enough the uk bros</li>
+  <li>don't be scared to interact with/friend me! I know I can be a bit intimidating at first but I am nothing like that once you get to know me😜</li>
+  <li>im slow at responding though and i don't speak first. I'm almost always busy with personal/family stuff</li>
+  <li>I am a minor⚠️ Do not be weird to me unless we're friends thxxx xx</li>
+  <li>I'm usually at the hetalia area sitting with <a href=https://www.github.com/@aphestonia">GOAT ANGELITO</a> (credits to him cause he did most of this for me <3) you'll never spot me sitting anywhere else unless i'm with him cause i know no other people except for him that play ponytown</li>
+</ul>
+
+<p>also I don't have an atabook nor a strawpage💩 i'd make one if i have time but all i have is tiktok for now HAHA</p>
 
 <p align="center">
   <a href=https://www.tiktok.com/@slowjamastans">me tiktok</a>
-</p>
+</div>
